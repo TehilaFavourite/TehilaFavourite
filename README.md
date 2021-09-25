@@ -6,6 +6,6 @@
 - 💞️ I’m looking to collaborate on anything related to blockchain and if you are having any problem regarding blockchain development 
      feel free to message me and I will help you out. My strong determination and passion for Blockchain development have inspired me to 
       offer premium quality services....
-- 📫 How to reach me ...
+- 📫 How to reach me www.linkedin.com/in/ajaye-favour-blockchain-developer
 
 
